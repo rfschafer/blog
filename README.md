@@ -1,1 +1,1 @@
-# blog
+I created this space to communicate my diverse ideas to a wider audience, namely more that just my best friend. I respond well to Socratic feedback and encourage it. I certainly don't have all the answers.
